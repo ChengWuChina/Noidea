@@ -1,2 +1,2 @@
 # Noidea
-熟悉流程
+i just want to change something.
